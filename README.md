@@ -9,4 +9,7 @@
 ### Project Dashboard PDF :  https://drive.google.com/file/d/1MfffQ_S5InwZA_oeiLk01QlWc7UzBSng/view?usp=sharing
 
 ### Project Story PDF  :  https://drive.google.com/file/d/1A5Jenk8V6y60F_ZZTwoKZEgmFSoSPD2f/view?usp=sharing
-Project Demonstration Video Link
+
+### Project Report PDF :  https://drive.google.com/file/d/1COESnQMJcN5htA3ha4UccWTO1iVF9OTY/view?usp=sharing
+
+### Project Demonstration Video Link  :  
