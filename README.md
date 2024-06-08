@@ -7,4 +7,6 @@
 ### Project Visualization PDF :  https://drive.google.com/file/d/19nJ-hnGjx4hDsokRlx7ZxGqphhURotav/view?usp=sharing
 
 ### Project Dashboard PDF :  https://drive.google.com/file/d/1MfffQ_S5InwZA_oeiLk01QlWc7UzBSng/view?usp=sharing
+
+### Project Story PDF  :  https://drive.google.com/file/d/1A5Jenk8V6y60F_ZZTwoKZEgmFSoSPD2f/view?usp=sharing
 Project Demonstration Video Link
